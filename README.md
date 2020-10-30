@@ -1,4 +1,4 @@
-# History of Belarusians Letter
+# History of Belarusian Letters
 
 Special project for Philology.BY
 
